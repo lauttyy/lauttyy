@@ -15,5 +15,5 @@
 
 * 🌩️ I’m currently learning about some programming languages.
 
-# ⛅️ CCONTAC:
+# ⛅️ CONTAC:
 Mail: mlauty260@gmail.com
